@@ -8,4 +8,5 @@
 danzo2222/danzo2222 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-nugyftfrsaafgtffrfjhuyhgyggt66tr5ftfd4dcfcbhgtyfthgvbrdbvbvh btrd rfrfrfg fttftftf
+#insta- @_somu0.6
+#Gmail- itzsoumya685@gmail.com
